@@ -1,0 +1,1 @@
+![Ekran Goruntusu](https://i.hizliresim.com/nWoGLM.jpg "Ekran Görüntüsü")
